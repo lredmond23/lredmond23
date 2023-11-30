@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lredmond23
+- 👀 I’m interested in video games, cooking
+- 🌱 I’m currently learning computing
